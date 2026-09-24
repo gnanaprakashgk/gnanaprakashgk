@@ -163,9 +163,9 @@ Future AI Engineer 🚀
 
 ## 📫 Connect With Me
 
-* 💼 LinkedIn — Coming Soon
+* 💼 LinkedIn — [https://www.linkedin.com/in/gnanaprakashgk/)
 * 🐙 GitHub — [@gnanaprakashgk](https://github.com/gnanaprakashgk)
-* 📧 Email — Available on request
+* 📧 Email — [gnanaprakashg1312@gmail.com)
 
 ---
 
